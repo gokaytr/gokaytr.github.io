@@ -1,1 +1,0 @@
-# gokaytr.github.io
